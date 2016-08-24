@@ -1,2 +1,3 @@
 # Sugar-Honey-Iced-Tea
-Summer beverage
+Summer Beverage
+Fresh Unparalleled Crisp Kombucha
